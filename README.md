@@ -33,4 +33,4 @@ Guess 2: The "red and black circle" might be exclusive to "left-handers." In 202
 
 Guess 3: The "red and black circle" might replace the "red and blue circle." Unlike the "blue-black circle" and "green-black circle," which were added for variety, the "red and black circle" is a derivative of the "red and blue circle." If Rolex revives the "red and black circle," they might discontinue the current Ref.126710BLRO to refresh the lineup, although it's also possible they’ll offer both color schemes, as seen with the Ref.16710.
 
-Whatever the new products look like, we’ll find out at Geneva in April. The [super clone Rolex watch](https://bushrunningmate.com/) team will be heading to Switzerland, so stay tuned for our follow-up coverage.
+Whatever the new products look like, we’ll find out at Geneva in April. The [super clone Rolex watch](https://issuperclonewatches.com/) team will be heading to Switzerland, so stay tuned for our follow-up coverage.
